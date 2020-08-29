@@ -1,1 +1,1 @@
-https://ldegtyarov.github.io/aod/
+https://ldegtyarov.github.io/aod
